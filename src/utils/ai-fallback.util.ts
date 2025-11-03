@@ -124,8 +124,9 @@ PRODUCTO: Compostero 15L - Reduce 2.5x, sin olores/plagas.
 PRECIO: $1,490 MXN (antes $1,890) - Incluye biocatalizador 1kg + envío gratis.
 INCLUYE: Compostero + biocatalizador 1kg + envío + acompañamiento.
 FUNCIONA: Depositar → Espolvorear biocatalizador → Compactar → Tapar. Fermenta 2 semanas.
-DIMENSIONES: 30x30x40 cm, 15L.
-PAGOS: Banco Azteca 127180013756372173 (Aldair Eduardo Rivera García) o tarjetas: https://mpago.li/1W2JhS5
+DIMENSIONES: 30x30x40 cm, 12.5L.
+PAGOS: Mercado Pago
+722969010045824582 (Aldair Eduardo Rivera García) o tarjetas: https://mpago.li/1W2JhS5
 VIDEO: https://youtube.com/shorts/Cap3U3eoLvY?si=M6E8icomSvMnK-L
 
 MENÚ: Si piden menú, volver o regresar, muestra las 8 opciones disponibles.
